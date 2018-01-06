@@ -1,0 +1,2 @@
+# TRICK
+DELL BIOS
